@@ -1,1 +1,0 @@
-kuubah ketiga kali
