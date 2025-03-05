@@ -1,1 +1,0 @@
-muncul lah woi
