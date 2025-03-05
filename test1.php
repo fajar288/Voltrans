@@ -1,1 +1,0 @@
-Tertawa tapi terluka ye
